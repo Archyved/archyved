@@ -3,7 +3,7 @@
   
 - 🔭 I’m currently working on **my personal projects**  
   
-- 📫 How to reach me **estebannikkob@gmail.com**  
+- 📫 Reach me at **estebannikkob@gmail.com**  
   
 - ⚡ Fun fact **I find fixing bug a satisfying work!**  
   
